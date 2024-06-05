@@ -1,1 +1,1 @@
-# Sight-Scan-Empowering-the-Visually-Impaired
+# Sight-Scan: Empowering the Visually Impaired
